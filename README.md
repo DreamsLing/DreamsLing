@@ -8,5 +8,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: 腼腆的外表下藏着皮的一比的心
 
-
-<img src="https://afdian.net/leaflet?slug=dreamling" width="100%" scrolling="no" height="200" frameborder="0"></img>
+[![QQ](https://img1.baidu.com/it/u=914198214,3197345082&fm=253&fmt=auto&app=138&f=JPEG?w=400&h=300)](https://qm.qq.com/q/2DUKsXbjrG)
