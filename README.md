@@ -1,7 +1,5 @@
 ## 🌟 I'm **Dreamling**
 
-Here are some ideas to get you started:
-
 - 👯 I wish I were studying now：学习
 - 💬 Ask me about：要钱没有 要命不给
 - 📫 How to reach me: 861683052@qq.com
