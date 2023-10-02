@@ -2,7 +2,7 @@
 
 Here are some ideas to get you started:
 
-- 👯 I’m looking to collaborate on：学习
+- 👯 I wish I were studying now：学习
 - 💬 Ask me about：要钱没有 要命不给
 - 📫 How to reach me: 861683052@qq.com
 - 😄 Pronouns: ...
