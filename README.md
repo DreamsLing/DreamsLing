@@ -6,7 +6,7 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: 腼腆的外表下藏着一颗皮的一比的心
 
-<img src="https://81.68.255.132/API/ip_signature_image/index.php" alt="IpSignatureImage" title="显示IP图片">
+<img src="https://www.dreamling.top/API/ip_signature_image/index.php" alt="IpSignatureImage" title="显示IP图片">
 
 [![QQ](https://img0.baidu.com/it/u=1480586184,4190959913&fm=253&fmt=auto&app=138&f=JPEG?w=400&h=300)](https://qm.qq.com/q/2DUKsXbjrG)
 [![WX](https://img1.baidu.com/it/u=837876764,1804416642&fm=253&fmt=auto&app=138&f=JPEG?w=500&h=500)](https://u.wechat.com/MLcUzL56XKqtTu5wLpyhB6w)
